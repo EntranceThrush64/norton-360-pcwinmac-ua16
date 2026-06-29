@@ -1,4 +1,4 @@
-# 
+# Official Norton 360 extensions for Mac OS | Exclusive Norton 360 extensions for PC Windows. Featuring ad blocker and real-time monitoring — optimized for maximum performance on every platform.
 
 
 
